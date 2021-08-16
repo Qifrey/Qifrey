@@ -1,0 +1,3 @@
+- Hi, I’m @Qifrey
+- I’m interested in learn Python language and neuroscience to bring new projects to our lifes. If you have a great idea to collaborate, please send me an email! :)
+- Email: thiagovidp@gmail.com
